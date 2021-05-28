@@ -1,0 +1,1 @@
+# -New-Hack-Teamfight-Tactics-Hack-Gold-Generator
